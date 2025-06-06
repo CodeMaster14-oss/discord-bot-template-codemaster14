@@ -22,7 +22,7 @@
 - Scripts para jogos como Roblox: €/R$/$/100+
 
 ## 📬 Contato
-- Email: fquitumba30@gmail.com
+- Email: cabralafricana@gmail.com
 - Discord:CodeMaster14
 
 # CodeMaster14 - Freelance Programmer
@@ -49,5 +49,5 @@
 - Scripts for games like Roblox: R$/€$/100+
 
 ## 📬 Contact
-- Email: fquitumba30@gmail.com
+- Email:cabralafricana@gmail.com
 - Discord:CodeMaster14
